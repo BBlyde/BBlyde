@@ -1,2 +1,2 @@
-Cybersecurity engineer student at CY,
-discord : Blyde#1877
+Software engineer in Toulouse, studied at CY Pau,
+discord : Blyde_
